@@ -7,6 +7,6 @@
 
 - 💬 Ask me about **something**
 
-- 📫 How to reach me **telegram: tinkoffisonlyone ; email: testhoneybot111@incel.email**
+- 📫 How to reach me **telegram: tinkoffisonlyone ;**
 
 - ⚡ Fun fact **Nope.**
